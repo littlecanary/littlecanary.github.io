@@ -9,11 +9,11 @@ image: empresa.jpg
 
 ## Arrival
 
-Our plane touched down at 8:20 AM on Tuesday, and we deplaned right on the tarmac down a staircase. Then we all boarded buses to the arrivals terminal. I don't know if that's standard for a United flight in Lisbon or if heavy traffic at the airport prevented us from pulling up to the gate. 
+For weeks, I had been picturing a city gleaming white in the sun, brilliant blue skies above&#8211;as it's shown in all the guidebooks and online photos. And until a few days before we left, that was the forecast. But on Tuesday morning, we arrived to a Lisbon shrouded in clouds, with more clouds in the forecast ahead. D and I have a knack for getting unseasonably bad weather on our vacations, so I tried to stay positive and hoped that at least the rain would stay away. 
 
-For weeks, I had been picturing a city gleaming white in the sun, brilliant blue skies above&#8211;as it's shown in all the guidebooks and online photos. And until a few days before we left, that was the forecast. But that morning, we arrived to a Lisbon shrouded in clouds, with more clouds in the forecast ahead. D and I have a knack for getting unseasonably bad weather on our vacations, so I tried to stay positive and hoped that at least the rain would stay away. 
+Our plane touched down at 8:20 AM, and we deplaned right on the tarmac down a staircase. Then we all boarded buses to the arrivals terminal. I don't know if that's standard for a United flight in Lisbon or if heavy traffic at the airport prevented us from pulling up to the gate. 
 
-We were through passport control and baggage claim in half an hour. I had requested a transfer to the hotel, and D immediately spotted our driver, a gregarious older gentleman who spoke about as much English as I speak Portuguese. After a short drive, having passed by a Staples (I had no idea they were international), a few car dealerships, a supermarket, and shipping containers, we pulled up to our hotel, the [Eurostars Museum](https://www.eurostarshotels.co.uk/eurostars-museum.html) on Rua Cais de Santarém. 
+We were through passport control and baggage claim in roughly forty minutes. I had requested a transfer to the hotel, and D immediately spotted our driver, a gregarious older gentleman who spoke about as much English as I speak Portuguese. After a short drive, having passed by a Staples (I had no idea they were international), a few car dealerships, a supermarket, and shipping containers, we pulled up to our hotel, the [Eurostars Museum](https://www.eurostarshotels.co.uk/eurostars-museum.html) on Rua Cais de Santarém. 
 
 I had requested an early check-in; happily, the hotel had a room ready for us. The room featured a large wall map of Vasco de Gama's 1498 route to Calicut and full-length windows with a view of the Tagus river&#8211;and the huge *Neue Mein Schiff 1* cruise ship. The proximity of the cruise terminal made me wonder if we'd find hordes of passengers tramping past our doorstep every day, but they must have taken a different path into the city center, because it was relatively quiet on our block. We ended up loving the location and actually felt a little removed from the hurly-burly of the most crowded tourist areas. 
 
@@ -36,7 +36,7 @@ Quick stroll back to the hotel so D could have a brief lie-down and I could chec
 
 We walked over towards Praça do Comércio and gaped at the wide, open square surrounded by those canary and cream-colored buildings and the king on horseback looking out to the river. We turned and began to walk up Rua Augusta. I am sorry to say I did not enjoy this part of our walk at all. It seemed very crowded, and the vendors and street performers reminded me of Times Square or Las Ramblas. If I had been interested in doing some shopping, I probably would have had more fun strolling along the storefronts, but I just wanted to get out of there. We stopped only to get cash from an ATM and made our way as quickly as possible to Rossio. 
 
-D recognized the wave-patterned mosaic from a television program we had seen, and as we crossed the square, looking down at the waves, I think I did begin to feel a little dizzy! That surely explains why I had trouble figuring out which way to go. At this point, I should have been leading us to the Elevador da Glória, but somehow I got confused and ended up resorting to my phone, which led us up a steep flight of steps and some even steeper streets until we made it to the meeting point.
+D recognized the wave-patterned mosaic from a television program we had seen, and as we crossed the square, looking down at the waves, I think I did begin to feel a little dizzy! That surely explains why I had trouble figuring out which way to go. At this point, I should have been leading us to the Elevador da Glória, but somehow I got confused and ended up resorting to looking at my phone, which led us up a steep flight of steps and some even steeper streets until we made it to the meeting point.
 
 
 ## Walking Tour
@@ -59,7 +59,7 @@ The tour was supposed to be three hours, going through Bairro Alto, Chiado, Baix
 
 ![Rossio](/assets/img/rossio.jpg "Rossio"){: .center-image .image-responsive} *Looking down towards Rossio from the viewing platform* 
 
-- We stopped at Ginjinha Sem Rival for a taste of the local specialty with the fruit included. I was surprised to find I liked ginja much better than I expected, but I like cherries. D thought it was fine but didn't think he would want to drink it again.
+- We stopped at Ginjinha Sem Rival for a taste of the local specialty with the fruit included. I liked ginja much better than I expected; it was actually less sweet than I thought it would be. D said it was all right but didn't think he would want to drink it again.
 
 - In Largo de Sāo Domingos, we stopped to visit the Memorial to the 1506 Jewish Massacre and discuss the Inquisition in Portugal and the history of the families who "converted" but secretly maintained their traditions. With that context in mind, we proceeded to the Church of Sāo Domingos, which was badly damaged by the earthquake, rebuilt, and then destroyed by a fire in 1959 and restored. I never would have thought to visit this church on my own, but this ended up being one of the most memorable experiences of our trip. I don't think photographs can convey the eerie power of just being inside that atmosphere, which I can only describe as a living ruin. The impression it made may have been even stronger because it was juxtaposed with our earlier visit to the well-preserved Church of Sāo Roque.
 
