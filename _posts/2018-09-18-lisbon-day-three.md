@@ -49,7 +49,7 @@ D wanted to go back *again* to the market at Praça da Figueira to try one of th
 
 The concert that night was part of something called [Cultura na Rua](https://www.culturanarua.pt/en) or maybe Lisboa na Rua, it's a little unclear to me, and the performer was a young fadista named Sara Correia. That's really all I knew going into it, but I did find an [article](https://observador.pt/especiais/e-preciso-cantar-cada-virgula-de-onde-vem-todo-este-fado-de-sara-correia/) in Portuguese about the event the next day.
 
-![Lisboa na Rua](/assets/img/lisboa-na-rua.jpg "Lisboa Na Rua"){: .center-image .image-responsive} 
+![Lisboa na Rua](/assets/img/lisboa-na-rua.JPG "Lisboa Na Rua"){: .center-image .image-responsive} 
 *Concert in the Praça do Municipio*
 
 Well, neither D nor I knew anything about fado aside from what our guidebook said, but we had a wonderful night and kept turning to each other to say, "Can you believe this is free?" Even though we couldn't understand the meaning of the lyrics, it was obvious that Sara Correia has an powerful, expressive voice, and we could appreciate that there was a range of mood represented, from mournful lamentation to more stirring, almost defiant-sounding songs. The buildings surrounding the square seemed to further amplify the sound, and the town hall lit up behind the stage made for a memorable spectacle.
